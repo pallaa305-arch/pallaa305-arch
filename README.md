@@ -1,5 +1,5 @@
 
-<h1 align="center">Hi 👋, I'm Pallaa</h1>
+<h1 align="center">Hi 👋, I'm Depk KaTaRia</h1>
 <h3 align="center">🚀 AI Developer | Full Stack Builder | Automation Enthusiast</h3>
 
 <p align="center">
