@@ -69,7 +69,7 @@
 
 ## 🌐 Connect with Me  
 
-- 📧 Email: your-email@example.com  
+- 📧 Email: Pallaa30@gmail.com  
 - 🌍 Website: https://edu-assist-ai.onrender.com  
 
 ---
