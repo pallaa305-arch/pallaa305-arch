@@ -40,8 +40,8 @@
 
 ## 🌐 Connect with Me  
 
-- 📧 Email: Pallaa30@gmail.com  
-- 🌍 Website: https://edu-assist-ai.onrender.com  
+- 📧 Email: Pallaa305@gmail.com  
+- 🌍 Website: https://edu-assist-ai.onrender.com,   https://ideato.site
 
 ---
 
